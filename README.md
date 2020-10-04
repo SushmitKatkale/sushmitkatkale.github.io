@@ -1,2 +1,0 @@
-# sushmitkatkale.github.io
- 
